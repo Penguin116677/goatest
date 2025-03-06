@@ -1,2 +1,2 @@
 # goatest
-im a reap goat
+im a real goat
